@@ -1,0 +1,2 @@
+# Fizika-rganamizmiii
+Fizikaòrganamizmiii
